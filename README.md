@@ -1,2 +1,7 @@
 # Escola-do-Viajante-Ultra-Gal-tico
-Escola do Viajante Ultra Galático
+
+#Dúvidas
+
+- Andar com documentos durante a viagem
+- Legalizar permanência em Portugal
+- 
